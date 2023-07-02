@@ -8,4 +8,4 @@
 
 💞️ I’m seeking new opportunities with analytics-related projects in Canada...
 
-📫 You can reach me through E-mail krystenliu23@gmail.com OR my linkedin www.linkedin.com/in/krystenliu :)
+📫 You can reach me through E-mail krystenliu23@gmail.com
